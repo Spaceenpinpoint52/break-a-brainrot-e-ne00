@@ -1,4 +1,4 @@
-#  
+#  break a brainrot egg Script secure is the best break a brainrot egg Script, featuring infinite resources and fly. Safe and powerful for all your
 
 
 
